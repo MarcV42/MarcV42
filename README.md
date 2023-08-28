@@ -1,3 +1,4 @@
+![Github Kopie](https://github.com/MarcV42/MarcV42/assets/90624942/c211ca29-e45f-41ae-be98-bac65febad26)
 # About Me:
 🔭 I’m currently participating in the Neue Fische Java Bootcamp until end of November 23<br>👯 I’m looking to collaborate on cool projects<br>
 
