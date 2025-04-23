@@ -1,6 +1,5 @@
 ![Github Kopie](https://github.com/MarcV42/MarcV42/assets/90624942/c211ca29-e45f-41ae-be98-bac65febad26)
 # About Me:
-🔭 Just finished the Neue Fische Java Bootcamp <br>👯 I’m looking for a good job or to collaborate on a cool project for my references<br> both wouldn't be possible cos i have kids
 
 
 ## 🌐 Socials:
